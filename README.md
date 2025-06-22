@@ -1,0 +1,1 @@
+https://landingpage220625.netlify.app/
